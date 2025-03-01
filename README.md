@@ -1,4 +1,4 @@
-clover / mimi :3 professional crittergirl
+clover / junie :3 professional crittergirl
 
 i liek 2 play and draw
 
