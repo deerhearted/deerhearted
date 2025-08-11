@@ -1,14 +1,14 @@
 junie / clover :3 real life fairy unicorn puppygirl
 
 
-i liek 2 play and draw
+autistic princess .,,, trinket collector
 
 jazzy is my waifu 4 laifu !!
 
 higurashi , totono , luckystar , co09 , alnst , nso , g1 mlp , pjsk
 
 
-probably one of the worst (and cutest, funniest, prettiest, most likeable) people you will meet on the internet
+probably one of the most unusual (and cutest, funniest, prettiest, likeable) people you will meet on the internet
 
 please bmf please bmf
 
